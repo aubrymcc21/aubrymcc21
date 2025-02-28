@@ -4,6 +4,6 @@
 
 ### Let's connect!
 
-#### [My Website] (https://aubrymcc21.github.io/aubryminima.github.io/)
+#### [My Website](https://aubrymcc21.github.io/aubryminima.github.io/)
 
-#### [LinkedIn] (https://www.linkedin.com/in/aubry-mcconnell-7607711b7/)
+#### [LinkedIn](https://www.linkedin.com/in/aubry-mcconnell-7607711b7/)
